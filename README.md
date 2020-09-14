@@ -4,7 +4,7 @@
 ### - 👯 I’m looking to collaborate on Youtube.
 ### - 🤔 I’m looking for help with New Projects.
 ### - 💬 Ask me about Memes.
-### - 📫 How to reach me: Instagram:@abhi.so.raha
+### - 📫 How to reach me: Instagram:@abhi.uth.raha
 ###                       LinkedIn: https://www.linkedin.com/in/abhishek-nayyar-495536145/
 ### - 😄 Pronouns: He/Me
 ### - ⚡ Fun fact: Music/Movies are just Awesome!!
