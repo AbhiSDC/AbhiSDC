@@ -1,7 +1,7 @@
 ### Hi there, AbhiSDC here! 👋
 ### - 🔭 I’m currently working on Learning New Things.
-### - 🌱 I’m currently learning GCP.
-### - 👯 I’m looking to collaborate on Youtube.
+### - 🌱 I’m currently learning Cloud.
+### - 👯 I’m looking to collaborate for getting Fit.
 ### - 🤔 I’m looking for help with New Projects.
 ### - 💬 Ask me about Memes.
 ### - 📫 How to reach me: Instagram:@abhi.uth.raha
