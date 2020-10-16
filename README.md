@@ -6,7 +6,7 @@
 ### - 💬 Ask me about Memes.
 ### - 📫 How to reach me: Instagram:@abhi.uth.raha
 ###                       LinkedIn: https://www.linkedin.com/in/abhishek-nayyar-495536145/
-### - 😄 Pronouns: He/Me
+### - 😄 Pronouns: Abhishek/AbhiNay
 ### - ⚡ Fun fact: Music/Movies are just Awesome!!
 <!--
 **AbhiSDC/AbhiSDC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
