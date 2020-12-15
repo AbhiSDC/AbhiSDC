@@ -4,8 +4,7 @@
 ### - 👯 I’m looking to collaborate for getting Fit.
 ### - 🤔 I’m looking for help with New Projects.
 ### - 💬 Ask me about Memes.
-### - 📫 How to reach me: Instagram:@abhi.uth.raha
-###                       LinkedIn: https://www.linkedin.com/in/abhishek-nayyar-495536145/
+### - 📫 How to reach me:LinkedIn: https://www.linkedin.com/in/abhishek-nayyar-495536145/
 ### - 😄 Pronouns: Abhishek/Abhi
 ### - ⚡ Fun fact: Music/Movies are just Awesome!!
 <!--
